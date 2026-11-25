@@ -8,7 +8,7 @@ One line summing up my week, for [Your Week in One Line](https://make.fun/bounty
 
 ## Entry
 
-> A hundred bounties in, GTA 1100th, news 2575 to 211 — and I'm up at 3am selling my week for $2.
+> 2462nd of 2,468, rejected twice, then my own 0600 file locked me out — I lost to my own code too.
 
 ## Run
 
